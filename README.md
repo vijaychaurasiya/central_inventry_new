@@ -1,0 +1,1 @@
+# central_inventry_new
